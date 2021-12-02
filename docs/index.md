@@ -1,6 +1,8 @@
 # Non-processed school lunch initiative
 ### _Learn healthy, eat healthy_
 
+Please follow our Twitter account, found here: https://twitter.com/NonSchools
+
 ![infographic.jpg](img/infographic.jpg)
 
 ## Mission Statement
