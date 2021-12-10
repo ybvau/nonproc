@@ -1,7 +1,4 @@
 site_name: Non-Processed Lunch Initiative
-theme: 
-  name: material
-  logo: img/logo.png
+theme: readthedocs
 markdown_extensions:
   - attr_list
-  - md_in_html
