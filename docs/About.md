@@ -1,0 +1,32 @@
+# Background 
+
+## Mission Statement
+From experience, we know the types of food being served during lunch time at Public schools across the country. These foods, although “up to the FDA standards” are poor in terms of quality although they are affordable. What we propose is for all public and or federally funded schools to serve organic, local, and unprocessed/ natural foods for their students. This will see a multitude of benefits for not only the students but also for the local economy.
+
+## Problem Statement and Background
+  Problem Statement and Background
+Why is a call to action needed? 
+
+## Then
+In 1853, the first school lunch program in the U.S. was launched by the Children’s Aid Society of New York. That program was run by concerned mothers looking out for their children during school time, but because of the lack of organization it was not very successful. The next major event involving school lunches did not come until 1905 when Robert Henry published “Poverty” which was a statistical book that underlined that child hunger as a downfall of society. After the publication of this infamous book, school lunches began to pop up all across the country. 
+
+In 1908 the Women’s Educational and Industrial Union of Boston began serving hot lunches in public schools. Soon after, programs like these began to emerge all over the country in bigger cities but also in rural communities.
+
+Fast forward to the Great Depression where it was quickly realized that school lunches cannot survive merely with the support of local volunteers. This is when the Federal Government stepped in and began funding these programs through the New Deal as the Reconstruction Finance Committee gave loans to schools for funding with an emphasis on creating more jobs. This slowly was turning into an industry as 7,422 women across 39 states were involved by 1936. 
+
+Over the next 10 years, annual funding began to increase but with no efficient means. This is when the National School Lunch Act of 1946 was passed which is referred to as “the single largest step in the history of school lunches in the United States” as it fundamentally changed school lunch by making it into a national program. This required schools to provide eating areas for students, serve foods that met the minimum nutritional requirements prescribed by the Secretary, serve free or reduced cost food to students deemed unable to pay, operate as a non-profit, and to maintain receipts and tabs by submitting them as reports to the state agency.
+
+In 1966, further efforts were passed by the government to improve school lunches, which is how and why the Child Nutrition Act was then passed by Congress. This made foods more affordable, introduced a breakfast option, as well as furthering assistance for nonfood assistance funds. But the most successful part of this Act was the authorization of centralized school food programs which spanned across departments like health, education, welfare, and the office of economic opportunity. This was key because it unified standards, practices, supervision, and communication.
+
+## Now
+This brings us to more of the modern day, to where as of the 2000’s food items like ketchup, french fries, and pizza sauce were considered vegetables. This was due to in large part the school lunch programs' lunch budget cut and the lack of funding. They were just trying to make ends meet. Because it is a responsibility of the school to provide lunches for the kids, a lack of funding will hurt all people involved. But in 2010, Michelle Obama launched the Healthy Hunger-Free Kids Act where cafeterias began serving fruit, vegetables, whole grains, and began to slowly eliminate unhealthy fats in every school meal by 2012. Today, kids have a wide variety of foods at school if the decide to eat there. These foods are a significant improvement in terms of quality since 1853 one could argue.
+
+## Why is this an argument? 
+Because in 1853, processed and ultra-processed foods were hard to come by whereas now they are commonplace. That is true for all Americans but also carries over to schools. Eating these ultra-processed foods, although cheaper, has shown significant correlation (in the long-run) to heart diseases, cancer, and decreased brain function and energy. Our groups point is that as a nation, kids in public schools are the future of this country so we must invest in them. That is not only by providing a solid education but also by what is being put into their bodies which can have a direct effect on how they function. Action is needed for this exact reason. Food for the body is like fuel for a car, and the future of our nation deserves to have the best quality of foods in their system in accordance with the budget. And if the cost of these higher quality foods exceed the budget, the discussion about an increase to that budget must be had.
+
+
+## What are the limits of others’ solutions? What's _OUR_ Solution?
+
+ This is a very complicated issue. The school lunch/meal industry is quite a large one today. After much consideration, our group believes that the best possible solution is for schools to exclusively buy their meals from local farmers and outsource the rest from as near as possible.The argument to this would be that this would be too expensive to do. 
+
+On the contrary, the local economies will be significantly enhanced and this will begin an economic growth across the country (because of the size of the industry). Additionally, parents will be willing to spend a little more money for higher quality meals for their kids if positioned as an investment. For the families that cannot afford these meals and need assistance, that will be completely possible. That being because of how the economy will be enhanced and everything (in time) will become less and less expensive the industry will be in a better place. This also brings in the argument of how things like inflation or the new minimum wage will effect this industry but in our minds, enhancing local businesses will enhance local communities, which in turn will financially promote the school systmenrs and that effect will happen nationwide.
