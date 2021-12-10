@@ -1,0 +1,1 @@
+![infographic.jpg](img/infographic.jpg)
