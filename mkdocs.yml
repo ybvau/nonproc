@@ -1,5 +1,6 @@
 site_name: Non-Processed Lunch Initiative
 theme: readthedocs
+  logo: docs/img/logo.jpg
 
 markdown_extensions:
   - attr_list
